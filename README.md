@@ -1,0 +1,2 @@
+# Linklerim
+Mackolik Linkleri
